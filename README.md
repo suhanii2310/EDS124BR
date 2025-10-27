@@ -8,4 +8,7 @@ Module 5: [https://youtu.be/8XuqUE9xFMI]
 
 Week 3 Links:
 Module 7:[https://youtu.be/4eka-UYPZ0Q]
-Moduke 8: [https://youtu.be/9-PNjSpd8iw]
+Module 8: [https://youtu.be/9-PNjSpd8iw]
+
+Week 4 Links:
+Module 9: [https://youtu.be/Sn_Q4Ga4Wus]
