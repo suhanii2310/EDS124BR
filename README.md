@@ -12,3 +12,6 @@ Module 8: [https://youtu.be/9-PNjSpd8iw]
 
 Week 4 Links:
 Module 9: [https://youtu.be/Sn_Q4Ga4Wus]
+
+Week 5 Links:
+Module 12: [https://youtu.be/ahH-5HKfqNc]
