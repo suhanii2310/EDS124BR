@@ -15,3 +15,5 @@ Module 9: [https://youtu.be/Sn_Q4Ga4Wus]
 
 Week 5 Links:
 Module 12: [https://youtu.be/ahH-5HKfqNc]
+
+Week 6 Links: Module 14: [https://youtu.be/cTE2DdvKHGU]
