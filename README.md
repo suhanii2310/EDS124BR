@@ -22,3 +22,6 @@ Module 14: [https://youtu.be/cTE2DdvKHGU]
 
 ### Week 7 Link:
 Module 17: [https://youtu.be/aKeZ_nTpN7M]
+
+### Week 8 Link:
+Module 19: [https://youtu.be/SFIN7z4H4cg]
